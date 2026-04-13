@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **shubhamsinghbisht19@gmail.com**
 
-- 📄 Know about my experiences [https://shubhamsinghbisht_reume.tiiny.site](https://shubhamsinghbisht_reume.tiiny.site)
+- 📄 Know about my experiences [https://shubhamsde.tiiny.site/](https://shubhamsde.tiiny.site/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
